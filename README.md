@@ -6,6 +6,6 @@
 
 ## Where:
 
-Kaffeine
+Kaffeine  
 66 Great Titchfield St.
 
